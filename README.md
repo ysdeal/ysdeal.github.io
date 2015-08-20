@@ -1,1 +1,1 @@
-# ysdeal.github.i
+# ysdeal.github.io
